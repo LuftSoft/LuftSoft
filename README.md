@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @LuftSoft.
-- 👀 I’m interested in football,programming, gaming.
+- 👋 Hi, I’m Tan Ngoc.
+- 👀 I’m interested in programming.
 - 🌱 I’m currently learning information technology at Posts and Telecommunications Institute of Technology, Ho Chi Minh City.
 - 💞️ I’m looking for work opportunities to improve my skills and experience to prepare for my future career.
 - 📫 How to reach me https://www.facebook.com/buita.tanngoc.7/
